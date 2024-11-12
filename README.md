@@ -1,4 +1,0 @@
-# CODESOFT
-# Code
-# Code
-# Code
